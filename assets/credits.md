@@ -27,6 +27,6 @@ Cretive Commons 0
 
 ---
 
-"Prison cells" by miss_millions is licensed under CC BY 2.0
+"Alcatraz prison cells" by Jumilla is licensed under CC BY 2.0
 
 ---

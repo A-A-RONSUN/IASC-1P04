@@ -34,3 +34,8 @@ Cretive Commons 0
 "Prison Yard" by Mark Turner is licensed under CC BY-NC-SA 2.0
 
 ---
+
+"Solitary Confinement" by Brook-Ward is licensed under CC BY-NC 2.0
+
+---
+

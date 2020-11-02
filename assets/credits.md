@@ -35,6 +35,10 @@ Cretive Commons 0
 
 ---
 
+"Blood Spatter" by Heo2035 is licensed under CC BY-NC 2.0
+
+---
+
 "Solitary Confinement" by Brook-Ward is licensed under CC BY-NC 2.0
 
 ---

@@ -35,7 +35,7 @@ Cretive Commons 0
 
 ---
 
-"Blood Spatter" by Heo2035 is licensed under CC BY-NC 2.0
+"What Happened Here?" by Kimli is licensed under CC BY-NC 2.0
 
 ---
 

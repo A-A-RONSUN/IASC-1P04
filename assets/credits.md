@@ -43,3 +43,6 @@ Cretive Commons 0
 
 ---
 
+"Sun & clouds" by Rhys A. is licensed under CC BY 2.0
+
+---

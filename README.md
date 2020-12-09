@@ -7,7 +7,7 @@ BreakOut is a short adventure game where the player is a person who is good natu
 
 ## Play now
 
-Play BreakOut [here]()
+Play BreakOut [here](final_build/BreakOut_FinalBuild.html)
 
 ### Playtest
 
